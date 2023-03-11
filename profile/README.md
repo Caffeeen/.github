@@ -1,3 +1,3 @@
 # Caffeinated Developers
 
-🚧 Project currently under development ☕️ 🚧
+🚧 Stay Caffeinated ☕️ 🚧
